@@ -1,1 +1,0 @@
-##common timming nahi hoti hai madarchod
